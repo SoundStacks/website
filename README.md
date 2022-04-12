@@ -1,3 +1,0 @@
-## SoundStacks Ltd
-
-...watch this space...
